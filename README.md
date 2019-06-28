@@ -1,6 +1,6 @@
 # Flag
 
- In 2008, Barack Hussein Obama Jr. launched into the history books as the first African American President of the United States. From his early life, few people could have foreseen his burgeoning leadership skills and vision. However, others would say it was his early life that helped shape his political career. What are some facts about Barack Obama? Prepare to be astounded.
+ "In 2008, Barack Hussein Obama Jr. launched into the history books as the first African American President of the United States. From his early life, few people could have foreseen his burgeoning leadership skills and vision. However, others would say it was his early life that helped shape his political career. What are some facts about Barack Obama? Prepare to be astounded.
 Early Years
 
 Barack Obama was born on August 4, 1961 at the Kapi'olani Medical Center in Honolulu, Hawaii. He was born to Stanley (Ann) Dunham, an American, and Barack Obama, Sr., from Kenya. In Swahili, the name "Barack" means "one who is blessed."
@@ -48,7 +48,7 @@ Other books written by Obama include:
 
 Family Life
 
-Barack and Michelle LaVaughn flag{pixel_game_100} Robinson met at the Sidney Austin law firm where they worked together. They were wed on October 3, 1992. The couple has two daughters. Malia Ann was born on July 4, 1998, and Natasha (Sasha) was born on June 10, 2001.
+Barack and Michelle LaVaughn" flag{pixel_game_100} "Robinson met at the Sidney Austin law firm where they worked together. They were wed on October 3, 1992. The couple has two daughters. Malia Ann was born on July 4, 1998, and Natasha (Sasha) was born on June 10, 2001.
 
 Many of us know the wives of presidents tend to become legacies in and of themselves. Michelle Obama has become known for both her determined, faithful, and intelligent demeanor, as well as her work to combat obesity and her support of military families.
 Political Life
@@ -139,4 +139,4 @@ Barack Obama won the Nobel Peace Prize in October 2009 for his "extraordinary ef
 There were over 200 nominations for the award; however, the five appointed members of the Norwegian Parliament voted unanimously to award the prize to Obama. The committee said they were particularly impressed with Obama's efforts to curb climate change, his support for preventing nuclear proliferation, and his work with international bodies such as the United Nations to implement policy goals.
 A Legacy That Carries On
 
-In 2018, Obama announced a multiyear deal with Netflix. In it, he and his wife will produce a series of shows - scripted and unscripted - addressing issues that were important to them during his eight years in office. For more on the 44th President, enjoy this time in-depth timeline of his life.
+In 2018, Obama announced a multiyear deal with Netflix. In it, he and his wife will produce a series of shows - scripted and unscripted - addressing issues that were important to them during his eight years in office. For more on the 44th President, enjoy this time in-depth timeline of his life."
